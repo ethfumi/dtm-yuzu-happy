@@ -29,3 +29,6 @@ https://twitter.com/fumilin/status/1116779960411103232
 
 7日目
 https://www.youtube.com/watch?v=RyrMB_yQ0Ws
+
+8日目
+https://www.youtube.com/watch?v=8XiOvaPoba8
