@@ -51,5 +51,5 @@ https://youtu.be/ISoRic2m3T0
 16日目
 https://www.youtube.com/watch?v=LNLPuOlD9Kk
 
-完成
+完成(17日目)
 https://youtu.be/qd-CsxQdayk
